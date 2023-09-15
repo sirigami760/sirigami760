@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sirigami760
+- 👀 I’m interested in coding.
+- 🌱 I’m currently in class 9.
